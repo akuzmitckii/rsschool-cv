@@ -11,3 +11,4 @@ Just studying now
 ## Languages:
 Russian - Native
 English - pre intermediate
+Spanish - read and translate with vocabulary
